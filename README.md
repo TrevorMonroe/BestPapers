@@ -22,6 +22,7 @@ Moreover, hysterics and appropriate emotions propel individuals towards completi
 ## Useful Articles:
 
 [Evaluation of Using a Comparative Essay Aloud](http://www.freepostclassifiedads.com/103/posts/33-Education-/1285--News-and-Media/571596--Evaluation-of-Using-a-Comparative-Essay-Aloud-.html)
+
 [Essay Proofreading and Evaluation](https://riich.me/blogs/view/4575)
 
 [How Paraphrasing And Synopsis](http://www.247adverts.com/for-sale/books-magazines/how-paraphrasing-and-synopsis_i246944)
